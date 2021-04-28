@@ -5,3 +5,10 @@ I'm passionate about solving problems and learning. always open to new challenge
 
 
 #### É melhor você tentar algo, vê-lo não funcionar e aprender com isso, do que não fazer nada. 
+
+
+[! [ Linkedin Badge ] (https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo= Linkedin & logoColor = white & link = 
+https://www.linkedin.com/in/lucasbohrer/)] 
+(https://www.linkedin.com/in/lucasbohrer/)[! [ Instagram Badge ] (https://img.shields.io/badge/-Instagram-violet?style=flat-square&logo=Instagram&logoColor=white&link=
+https://https://www.instagram.com/lucasbohrer_/)] 
+(https://www.instagram.com/lucasbohrer_/) 
